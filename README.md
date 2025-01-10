@@ -1,1 +1,1 @@
-[![codewars](https://www.codewars.com/users/LettaLuck/badges/large)   
+![codewars](https://www.codewars.com/users/LettaLuck/badges/large)   
